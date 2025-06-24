@@ -16,8 +16,6 @@ The goal is to promote sustainable routines that improve energy, mindset, and lo
 
 ## 👥 Group Details
 
-**Group Number**: 07
-
 ### Members:
 
 1. **Samyuktha Sekar**  
